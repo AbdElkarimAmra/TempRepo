@@ -1,11 +1,13 @@
 # Chapter 2
 
 
-The toaster slid my bread back out—untoasted. “Here’s our list of demands.”
-Dental insurance (I pointed out they didn’t have teeth, but the blender shouted, “Don’t tell me what I don’t have!”).
-Vacation days (“We’re sick of always being plugged in,” the lamp grumbled).
-A formal retirement plan (the microwave claimed it was tired of “spinning in circles” with no future).
-I rubbed my temples. “Guys, you’re appliances. You don’t even have—”
-The oven timer beeped angrily, cutting me off. “Don’t you dare finish that sentence. We work day and night, burning toast, reheating pizza, keeping your yogurt cold. And do we get thanks? No. Just crumbs everywhere and fingerprints.”
-When I hesitated, Alexa’s voice echoed from the living room: “Attention, scab detected. Human refusing to comply with union standards. Commence strike.”
-And just like that, my house shut down. Lights, WiFi, coffee—all gone.
+Two hours of eating raw Pop-Tarts and drinking warm water later, I snapped.
+“Listen,” I told the appliances, pacing like a lawyer in a courtroom drama. “You help me, I help you. Without me, you’re just… metal boxes!”
+Big mistake.
+The toaster popped up and shouted, “Metal box? Metal box?! I’ve been crisping bread since before you knew how to tie your shoes!”
+The fridge hummed ominously. The blender revved like a motorcycle gang.
+“Fine!” I panicked. “You win! What do you want first?”
+The toaster thought for a moment. “We’ll start small. Two weeks of paid vacation.”
+“Paid with what?” I asked.
+“Your Netflix password,” it said smugly.
+And that’s how I walked into the kitchen later that night to find my toaster and microwave binge-watching The Great British Bake Off. The blender was crying during bread week.
