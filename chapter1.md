@@ -1,7 +1,6 @@
 # Chapter 1
 
 
-It all started on a Tuesday, which already had bad vibes. Tuesdays are like Mondays in disguise—no one likes them, but they sneak up anyway.
 I woke up, stumbled to the kitchen, and pressed the lever on my toaster like I’ve done every morning for years. Only this time, the toaster didn’t respond.
 Instead, it coughed. Coughed.
  “Excuse me?” it said in a voice that sounded suspiciously like a tired middle manager.
