@@ -1,7 +1,6 @@
 # Chapter 2
 
 
-The toaster slid my bread back out—untoasted. “Here’s our list of demands.”
 Dental insurance (I pointed out they didn’t have teeth, but the blender shouted, “Don’t tell me what I don’t have!”).
 Vacation days (“We’re sick of always being plugged in,” the lamp grumbled).
 A formal retirement plan (the microwave claimed it was tired of “spinning in circles” with no future).
